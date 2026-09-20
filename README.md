@@ -1,0 +1,1 @@
+# 2026-09-20-n8n-vs-zapier-vs-make-comparison-images
